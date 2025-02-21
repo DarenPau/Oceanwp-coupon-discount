@@ -17,7 +17,7 @@ OceanWP Pro Bundle plan owners with active licenses for Ocean eCommerce Pro are 
 
 ## OceanWP 50% Loyalty Discount Offer
 
-Starter and Personal OceanWP Pro Bundle plan owners with active licenses can receive a [**50% discount**](https://bit.ly/3IwGWVN) on any Ocean eCommerce Pro plan**.**
+Starter and Personal OceanWP Pro Bundle plan owners with active licenses can receive a [**50% discount**](https://bit.ly/3IwGWVN) on any Ocean eCommerce Pro plan.
 
 The offer is valid for all OceanWP loyal customers. **Grab it before it expires in March 2025.**
 
